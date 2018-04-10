@@ -30,7 +30,7 @@
 ![](https://limingjiejie.oss-cn-beijing.aliyuncs.com/%E6%96%B0%E6%96%87%E6%A1%A3%202018-04-10.jpg)
 
 # 科研情况
-[报告](https://limingjiejie.oss-cn-beijing.aliyuncs.com/%E7%88%B1%E9%9A%8F%E5%BF%83%E8%A1%8C%E8%B0%83%E7%A0%94%E6%8A%A5%E5%91%8A.docx)
+[爱随心行调研报告.docx](https://limingjiejie.oss-cn-beijing.aliyuncs.com/%E7%88%B1%E9%9A%8F%E5%BF%83%E8%A1%8C%E8%B0%83%E7%A0%94%E6%8A%A5%E5%91%8A.docx)
 
 # 获奖情况
 
